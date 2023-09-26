@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @PrestonPrograms1138
+- 👀 I’m interested in coding whatever I feel like
+- 🌱 I’m currently learning python
+- 💞️ I’m looking to collaborate on discord or github
+- 📫 How to reach me discord
